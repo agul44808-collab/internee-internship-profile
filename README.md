@@ -1,2 +1,2 @@
 # internee-internship-profile
-My profile, skills, interests, and internship work or Internee.pk
+My profile, skills, interests, and internship work for Internee.pk
